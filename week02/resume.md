@@ -1,0 +1,23 @@
+#Sarah Silva
+##sarahsilva@live.com
+
+##Work History
+
+**Operations Manager**
+Green Beret, LLC
+2015 - Present
+
+**Business Office Manager**
+Flexile Systems
+2014 - 2015
+
+**Business Manager**
+Green Beret, LLC
+2011 - 2014
+
+
+##Education
+
+**B.A. Psychology**
+University of Texas Pan American
+2009-2013
